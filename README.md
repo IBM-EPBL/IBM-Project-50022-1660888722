@@ -1,2 +1,2 @@
-Assignment1 is uploaded in the name homedesign.
-Assignment2 is uploaded as Assignment2.
+VISHAL.S.M-assignment files are assignment1&2.
+Charankumar.r.e-assignment files are home design and assignment2.
